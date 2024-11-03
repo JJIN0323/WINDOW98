@@ -2,7 +2,8 @@
 
 ------
 
-##### HTML & CSS 곧 JAVA로 수정 예정
+##### ONRY HTML & CSS MAKE
+##### JAVA JX  STTLE CHQNGE SOON-
 
 ------
 
