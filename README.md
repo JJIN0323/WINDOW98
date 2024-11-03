@@ -2,7 +2,7 @@
 
 ------
 
-##### ONRY HTML & CSS MAKE
+##### ONLY ONRY HTML & CSS MAKE
 ##### JAVA JX  STTLE CHQNGE SOON-
 
 ------
