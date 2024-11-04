@@ -3,7 +3,6 @@
 ------
 
 ##### ONLY HTML & CSS MAKE
-##### JAVA JX  STTLE CHQNGE SOON-
 
 ------
 
